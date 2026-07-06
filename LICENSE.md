@@ -1,4 +1,4 @@
-# 
+# Manage complex accounting needs with QuickBooks Enterprise: Scalable solutions for growing businesses with advanced reporting and inventory tracking.
 
 
 
